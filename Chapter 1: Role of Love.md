@@ -46,6 +46,7 @@ Note: God seeks to draw us into a life of obedience through His expression of lo
 
 "Because he hath set his love upon me, therefore will I deliver him: I will set him on high, because he hath known my name" (Psalms 91:14).
 
-## Further Reading
+## Further Study
 
 - *Glimpses of Jesus* by James Rafferty
+- ["Letters From My African Lover" by Nicole Parker](https://palmoni.org/recordings/52-1-letters-from-my-african-lover)
